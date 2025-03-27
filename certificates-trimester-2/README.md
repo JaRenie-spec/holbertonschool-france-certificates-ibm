@@ -1,0 +1,1 @@
+SQL ceertificate https://courses.skillsbuild.skillsnetwork.site/certificates/a22b2421e02a43ed810852501fb97dc1
